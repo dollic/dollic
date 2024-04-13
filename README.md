@@ -1,3 +1,2 @@
-# dollic
-Config files for my GitHub profile.
-doing this later
+‎‎‎· ' °˖✧˚ʚ ˚₊‧꒰ა ꩜ ໒꒱ ‧₊˚ ɞ˚✧˖° ' ·
+Nero/Six · 
